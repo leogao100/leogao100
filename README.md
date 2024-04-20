@@ -7,7 +7,7 @@ Hey there! I'm @gaoleiccie
 
 💞 Seeking fellow alchemists to collaborate on brewing some digital magic. Let's concoct something extraordinary together!
 
-📫 Drop me a message via carrier pigeon... or just shoot me an email at your-email@example.com.
+📫 Drop me a message via carrier pigeon... or just shoot me an email at gaoleiccie@gmail.com.
 
 😄 Pronouns: he/him
 
